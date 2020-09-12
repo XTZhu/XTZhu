@@ -1,4 +1,4 @@
-![](https://s1.ax1x.com/2020/09/12/wa1noT.jpg)
+![](https://s1.ax1x.com/2020/09/12/wa11SJ.jpg)
 
 <!--
 **XTZhu/XTZhu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
